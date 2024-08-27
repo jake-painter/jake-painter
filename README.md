@@ -5,5 +5,3 @@ Jake’s vision extends beyond mere technological advancements; he envisions a f
 Through his work, Jake consistently strives to deliver transformative solutions that not only meet but exceed expectations. He is a firm advocate for continuous learning and development, ensuring that both he and his team stay at the forefront of technological progress. Jake’s dedication to human empowerment is evident in his efforts to create environments where people are inspired to innovate, collaborate, and achieve their fullest potential.
 
 In every project he undertakes, Jake’s goal is to harness the power of technology to drive meaningful change and unlock new opportunities for success. His unwavering commitment to excellence and innovation makes him a true leader in the field, always pushing the boundaries of what is possible.
-
-LinkedIN: https://www.linkedin.com/in/jacob-painter-73415970/
